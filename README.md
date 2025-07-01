@@ -1,4 +1,6 @@
-# jane (jxxne)
+![text-logo2](https://github.com/user-attachments/assets/2e4ef933-bedc-40dc-af56-9429ec4ec76b)
+
+# hi, i'm jane. known as technicolorgrl.
 
 hiii! welcome to my github! here you'll find all my different projects, and i hope some are impressive and useful to you! :D
 
